@@ -12,6 +12,6 @@
 
 **[📨 Email Me →](mailto:kunalbibolia@gmail.com)**
 
-**[🤙 Call Me →](tel:7977509081)**
+**[🤙 Call Me →](tel:+917977509081)**
 
 **[📝 My Resume →](https://smailiitmacin-my.sharepoint.com/:b:/g/personal/me21b094_smail_iitm_ac_in/ERFMKpG-2CRGhbNijUgJWy0BthKwGcWVu4uShgsRZfQnmw?e=HQ5U2Y)**
